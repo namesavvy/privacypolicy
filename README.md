@@ -1,0 +1,2 @@
+# privacypolicy
+NameSavvy Privacy Policy
